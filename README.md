@@ -10,4 +10,4 @@
 
 
 <블로그 주소><br>
-https://blog.naver.com/ggamjige8888/222260629337
+https://blog.naver.com/ggamjige8888/222177615621
